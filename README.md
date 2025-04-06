@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CozyCrafterBlogs
+- 👋 Hi, I’m CozyCrafterBlogs (AKA Eve)
 - 👀 I’m interested in video games, reading, and researching.
 - 🌱 I’m currently learning all about Minecraft mods
 - 😄 Pronouns: she/him
